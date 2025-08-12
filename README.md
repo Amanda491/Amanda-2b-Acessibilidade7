@@ -1,0 +1,1 @@
+# Amanda-2b-Acessibilidade7
